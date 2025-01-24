@@ -5,3 +5,5 @@ Redesign of a ox_inventory!
 Credit # sirupitalishteto
 
 Da go duhat convicted roleplay
+
+Preview https://prnt.sc/HuqMYKSpKHTW
